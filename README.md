@@ -7,7 +7,7 @@ Here, you’ll find everything you need to immerse yourself in the enchanting wo
 Thank you for visiting! Let’s embark on this journey together and explore the wonders of Wuthering Waves!
 <br><br>
 For any queries you can reach out to me via:
-<br><br>
+<br>
 Gmail: jamesbenedict010611@gmail.com
 <br> 
 Facebook: facebook.com/benedict.james06
